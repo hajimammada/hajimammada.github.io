@@ -1,0 +1,1 @@
+# hajimammada.github.io
